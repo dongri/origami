@@ -1,16 +1,3 @@
-Got it!
-This website uses cookies to ensure you get the best experience on our website More info
-
-TEXT-IMAGE.com
-
-main	|	convert	|	samples	|	help	|	about	|	mobile
-
-Result
-                                                                                                    
-                                                                                                    
-                                                                                                    
-                                                                                                    
-                                                                                                    
                                                                                                     
                                                                                                     
                                                                                                     
@@ -45,11 +32,6 @@ Result
                                       -+oooooo++/-.``.-/+ooooooo+-`                                 
                                        `/+++/-.`        `.:/+++:`                                   
                                          ```               ````                                     
-                                                                                                    
-                                                                                                    
-                                                                                                    
-                                                                                                    
-                                                                                                    
                                                                                                     
                                                                                                     
                                                                                                     
